@@ -1,2 +1,3 @@
 # hello, welcome to my repository 
-![WhatsApp Image 2025-05-18 at 22 41 28 (2)](https://github.com/user-attachments/assets/3ef7a6ba-a21a-459f-9666-9942f98cce2a)
+<img width="864" height="1184" alt="Gemini_Generated_Image_8jurs48jurs48jur (1)" src="https://github.com/user-attachments/assets/e3b036c6-ea10-4798-9d7b-b4f76b84effe" />
+
