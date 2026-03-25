@@ -1,3 +1,2 @@
 # hello, welcome to my repository 
-![WhatsApp Image 2026-03-17 at 14 07 18](https://github.com/user-attachments/assets/eafc631e-7089-4ea9-930b-77ad162389e7)
-
+![WhatsApp Image 2025-05-18 at 22 41 28 (2)](https://github.com/user-attachments/assets/3ef7a6ba-a21a-459f-9666-9942f98cce2a)
